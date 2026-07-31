@@ -1,0 +1,2 @@
+# afkauth
+alexxehhh ":)
